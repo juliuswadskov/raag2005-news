@@ -1,1 +1,1 @@
-# What's up bro, this is some random ass news
+What's up bro, this is some random ass news
